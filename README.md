@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Evfidiw
-- 👀 I’m interested in ML/DL/nlp
+- 👀 Looking for master or PHD
 - 📫 How to reach me evfxie@gmail.com
 
 <!---
