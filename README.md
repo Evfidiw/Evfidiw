@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Evfidiw
-- 👀 Looking for 2025 master/PhD
+- 👀 Looking for the collaboration opportunities
 - 🙋 Here is my [homepage](https://evfidiw.github.io)
 - 📫 How to reach me evfxie@gmail.com
 
